@@ -1,3 +1,4 @@
+#### This is NOT my stats, its just a template, if you wanna see my stats, go to my main profile page!
 # <div align="center">Welcome!! 😀</div>  
   
 
